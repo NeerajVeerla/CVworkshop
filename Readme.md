@@ -1,0 +1,1 @@
+workshop shop on computer vision during the summer break in CVIT year 2022
